@@ -1,2 +1,0 @@
-# 我是Young Rich
-
